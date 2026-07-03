@@ -1,4 +1,4 @@
-
+updated Script for welcome to bloxburg is the best welcome to bloxburg Script, featuring no cooldown and invisibility. Safe and powerful for all your
 
 
 
